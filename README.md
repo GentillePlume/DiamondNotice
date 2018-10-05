@@ -1,1 +1,1 @@
-# DiamondNotice
+# 💎📜 Diamond Notice
